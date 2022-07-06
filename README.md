@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [http://tiny.cc/arup-portfolio](http://tiny.cc/arup-portfolio)
 
-- 💬 Ask me about **I am a professional expert Shopify & WordPress Developer with 4+ years of experience. I have developed many Websites and E-commerce stores in Shopify and WordPress. MY SKILLS: ✔ Design store from scratch. ✔ Design customization. ✔ Landing page design. ✔ Theme development. ✔ Theme customization. ✔ Custom coding. ✔ Bug fixing. WHY ME? ✅ I respond very quickly. ✅ I'm experienced. ✅ I get stuff done. I have worked on many client projects, and most of my clients have left a 5-star rating for me, which shows how important they were to me. Why not talk to me about your interesting ideas? And I will always be on hand to share ways to bring them to life.**
+- 💬 Ask me about **I am a professional expert Shopify & WordPress Developer with 4+ years of experience. I have developed many Websites and E-commerce stores in Shopify and WordPress. <br>MY SKILLS: <br>✔ Design store from scratch. <br>✔ Design customization. <br>✔ Landing page design. <br>✔ Theme development. <br>✔ Theme customization. <br>✔ Custom coding. <br>✔ Bug fixing. <br>WHY ME? <br>✅ I respond very quickly. <br>✅ I'm experienced. <br>✅ I get stuff done. <br>I have worked on many client projects, and most of my clients have left a 5-star rating for me, which shows how important they were to me. Why not talk to me about your interesting ideas? And I will always be on hand to share ways to bring them to life.**
 
 - 📫 How to reach me **arup2021@gmail.com**
 
